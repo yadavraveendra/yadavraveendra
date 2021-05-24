@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yadavraveendra
 - 👀 I’m interested in Controllers (Worldww-www dominance)
-- 🌱 I’m currently doing Work-integrated learning program in Embedded Systems(M. Tech) and am a Systems Engineer at Siemens Mobility, Pune
+- 🌱 I’m currently doing Work-integrated learning program in Embedded Systems(M. Tech) and am a System Engineer at Siemens Mobility, Pune
 - 💞️ I’m looking to collaborate on anything fun :D
 - 📫 How to reach me ... +918748865108
 
